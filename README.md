@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **Web Dev as wll as Ai/Ml Development**
 
-- 📫 How to reach me **dasdevidutta3@gmail.com**
+- 📫 How to reach me **himanshusekharsahoochinu@gmail.com**
 
 </p>
 <img src="https://cdn.dribbble.com/userupload/21606445/file/original-87f89c32747bd361f530e0735083d18d.gif">
